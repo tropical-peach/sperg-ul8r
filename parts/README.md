@@ -13,3 +13,4 @@ Blue?
 
 ## KEYPAD
 
+https://www.jw-shop.com/P-keyboard-mswitch10/page30/detail.htm  -- 30 keys for basic functionality 
